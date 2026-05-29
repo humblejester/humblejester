@@ -12,7 +12,7 @@ I'M AUTISTIC. IF SOMETHING I SAID IS HURTFUL AND I DON'T NOTICE, PLEASE TELL ME!
 
 FANDOMS I'M CURRENTLY IN!! : Forsaken, Dandys World, Cuphead, GTA V, Gravity Falls, TADC! these are only ones I'm active in! I also ship. 
 
-SHIPS I LIKE! : Trikey, Azuretime, Paycheck, Noli007, MidnightSnacks, FossilFlower, PoppingCandy, Billford, Fiddlestan, Billstan, Ragapom, Abstragedy. However, this might not be it, as I'm a multishipper and probably like every ship you throw at me! ꈍᴗꈍ
+SHIPS I LIKE! : Trikey, Azuretime, Paycheck, Noli007, MidnightSnacks, FossilFlower, PoppingCandy, Billford, Fiddlestan, Billstan, Ragapom, Abstragedy, DevilDice! However, this might not be it, as I'm a multishipper and probably like every ship you throw at me! ꈍᴗꈍ
 
 ༻ Trikey = Trevor x Micheal, GTA V. PoppingCandy = Yatta x Poppy. MidnightSnacks = Cosmo x Astro. FossiFlower = Dandy x Shelly. ( incase confusing. ) ♥︎
 
