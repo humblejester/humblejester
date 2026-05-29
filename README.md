@@ -6,7 +6,7 @@ HELLO! IM VERY FRIENDLY, FEEL FREE TO INT!!! I LOVE MAKING FRIENDS SM I LOVE WHE
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
 
-I'M AUTISTIC. IF SOMETHING I SAID IS HURTFUL AND I DON'T NOTICE, PLEASE TELL ME!!! PLEASE PLEASE. I also love matching pfps, and other things!! however I have zero friends.. Shucks. 
+I'M AUTISTIC. IF SOMETHING I SAID IS HURTFUL AND I DON'T NOTICE, PLEASE TELL ME!!! PLEASE PLEASE.
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
 
