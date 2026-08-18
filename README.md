@@ -1,19 +1,9 @@
 <img width="480" height="270" alt="_com apple Pasteboard P2JcPd" src="https://github.com/user-attachments/assets/e4a16e58-e6ad-419d-9dbc-12d627fcdf37" />
 
-ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
+ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
-HELLO! IM VERY FRIENDLY, FEEL FREE TO INT!!! I LOVE MAKING FRIENDS SM I LOVE WHEN PEOPLE INT. HOWEVER.. I DON'T START CONVERSATIONS!!! I have a habit of matching energy though! if your energetic, I am! IT'S UNCONTROLLABLE.. 
+hi I am DARCIE .. im friendly but i probably won’t interact with anyone first, im online SOMETIMES… idk why i use this when I could’ve js used bio but whatever
 
-ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
+please don’t copy any of my skins unless I say you can or I made it for you, simple braaahh…also i have diagnosed autism and POSSIBLE bpd so yah
 
-I'M AUTISTIC. IF SOMETHING I SAID IS HURTFUL AND I DON'T NOTICE, PLEASE TELL ME!!! PLEASE PLEASE.
-
-ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘⸊ˎ
-
-FANDOMS I'M CURRENTLY IN!! : Forsaken, Animal Hospital, Cuphead, GTA V, Gravity Falls, TADC! these are only ones I'm active in! I also ship. 
-
-SHIPS I LIKE! : Trikey, Azuretime, Paycheck, Noli007, SecretSectretary, Billford, Fiddlestan, Billstan, Ragapom, Abstragedy, DevilDice, Buildermon/Buildershed, However, this might not be it, as I'm a multishipper and probably like every ship you throw at me! ꈍᴗꈍ
-
-༻ Trikey = Trevor x Micheal, GTA V. PoppingCandy = Yatta x Poppy. MidnightSnacks = Cosmo x Astro. FossiFlower = Dandy x Shelly. ( incase confusing. ) ♥︎
-
-I'm corny I know. / I am not in the dw fandom anymore due to the drama. its SO GROSS EWEWEWEEWWWWWWW!!!! being a dw fan isnt on my dni but yeah
+i like forsaken …. and gta… and uhhhhhhhh gravity falls ummmmm okay
