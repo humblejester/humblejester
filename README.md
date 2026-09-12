@@ -1,4 +1,4 @@
-https://tenor.com/view/eunash-frozensoul-frozen-soul-dream-game-dreamgame-gif-10412674318312057796
+https://media1.tenor.com/m/0VHH4iJfuDYAAAAC/eunoia-nashatra.gif
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
