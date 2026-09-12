@@ -2,7 +2,7 @@
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
-hi I am DARCIE .. im friendly but i probably won’t interact with anyone first, idk why i use this when I could’ve js used bio but whatever
+Eunash…
 
 please don’t copy any of my skins unless I say you can or I made it for you.
 
