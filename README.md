@@ -1,4 +1,5 @@
-https://media1.tenor.com/m/0VHH4iJfuDYAAAAC/eunoia-nashatra.gif
+<img width="498" height="302" alt="tenor" src="https://github.com/user-attachments/assets/d68eb0bb-8617-4400-b170-d7b8ac1fcf3d" />
+
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
