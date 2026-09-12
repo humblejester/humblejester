@@ -1,8 +1,8 @@
-<img width="480" height="270" alt="_com apple Pasteboard P2JcPd" src="https://github.com/user-attachments/assets/e4a16e58-e6ad-419d-9dbc-12d627fcdf37" />
+https://tenor.com/view/eunash-frozensoul-frozen-soul-dream-game-dreamgame-gif-10412674318312057796
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
-Eunash…
+Eunash… 😳
 
 please don’t copy any of my skins unless I say you can or I made it for you.
 
