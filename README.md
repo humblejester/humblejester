@@ -11,3 +11,5 @@ i like forsaken, frozen soul, friday the 13th, cuphead, the last guest, gravity 
 
 i go by any pronouns but i usually use she / they, you can call me darcie, darc, or cas. or anything else idrc!!! i am usually in the forsaken area
 i HATE SHOPDEBT AAAAAAAAAAAAAAAAAAAGHHHHHHHHHHHHHHHHHGHGHHH!!!!!!!!!!!!!!!
+
+bill cipher lover ♥️ awwwhwhwhhhh... i also love pamela voorhees, daisy, guest1337, and nashatra ^_^
