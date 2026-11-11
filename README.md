@@ -9,7 +9,7 @@ please don’t copy any of my skins unless I say you can or I made it for you.
 
 i like forsaken, frozen soul, friday the 13th, cuphead, the last guest, gravity falls, among us show, and roblox in general....ok? ok.
 
-i go by any pronouns but i usually use she / they, you can call me darcie, darc, or cas. or anything else idrc!!! i am usually in the forsaken area
+i go by any pronouns ! you can call me darcie, darc, or cas. or anything else idc!!!! i am usually in the forsaken area
 i HATE SHOPDEBT AAAAAAAAAAAAAAAAAAAGHHHHHHHHHHHHHHHHHGHGHHH!!!!!!!!!!!!!!!
 
-bill cipher lover ♥️ awwwhwhwhhhh... i also love pamela voorhees, daisy, guest1337, and nashatra ^_^
+bill cipher lover ♥️ awww so cute
