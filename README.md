@@ -3,13 +3,15 @@
 
 ˏ⸉ˋ‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩͙‿̩̩̽‿̩͙‿̩̥̩‿̩̩̽‿̩͙‘
 
+
 Eunash… 😳
 
-please don’t copy any of my skins unless I say you can or I made it for you.
+
+please DO NOT copy any of my skins unless I say you can or I made it for you oki❤️❤️
 
 i like forsaken, frozen soul, friday the 13th, cuphead, the last guest, gravity falls, among us show, and roblox in general....ok? ok.
 
-i go by any pronouns ! you can call me darcie, darc, or cas. or anything else idc!!!! i am usually in the forsaken area
+i go by any pronouns !! i am usually in the forsaken area
 i HATE SHOPDEBT AAAAAAAAAAAAAAAAAAAGHHHHHHHHHHHHHHHHHGHGHHH!!!!!!!!!!!!!!!
 
 bill cipher lover ♥️ awww so cute
